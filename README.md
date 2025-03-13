@@ -1,1 +1,2 @@
 # Fernando-Boudourian-el-impacto-del-G20-en-la-fiscalidad-global
+El G20 se ha convertido en un actor clave en la regulación de la economía. Desde el establecimiento de un impuesto mínimo global hasta la supervisión de criptomonedas, busca reducir la evasión fiscal y promover la equidad tributaria. Con el apoyo de la OCDE y el Financial Stability Board, impulsa medidas para mejorar la transparencia financiera y evitar la competencia desleal entre países. Sus decisiones impactan en grandes patrimonios y corporaciones.
